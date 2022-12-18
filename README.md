@@ -22,7 +22,7 @@
  
 ---
   
-<center><p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer" href="images/bye.gif"><img src="images/bye.gif"  ></a></p></center>
+<center><p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer" href="images/waving-technoblade-anime-fan-art-xjz8fyxbzakvitgq.jpg"><img src="images/waving-technoblade-anime-fan-art-xjz8fyxbzakvitgq.jpg"  ></a></p></center>
  
 [![](https://visitcount.itsvg.in/api?id=gauravbhainsora&label=Profile%20Views%20&color=11&icon=6&pretty=true)](https://visitcount.itsvg.in)
 
